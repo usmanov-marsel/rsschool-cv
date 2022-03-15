@@ -1,1 +1,1 @@
-# rsschool-cv
+https://usmanov-marsel.github.io/rsschool-cv/
